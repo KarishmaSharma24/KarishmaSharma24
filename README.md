@@ -8,7 +8,6 @@
 - 🔭 ***Software Engineer at 18 Pixels.***</br></br>
 - 💬 ***Ask me about: Web Development.***</br></br>
 - 📫 ***How to reach me: karishmasharma2424@gmail.com***</br></br>
-- 😄 ***Pronouns: Her***</br></br>
-- 🤔 ***I’m looking for help with ...***</br></br>
+- 😄 ***Pronouns: she/Her***</br></br>
 - ⚡ ***Fun Fact: ............***</br></br>
 

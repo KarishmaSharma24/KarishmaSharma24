@@ -9,5 +9,5 @@
 - 💬 ***Ask me about: Web Development.***</br></br>
 - 📫 ***How to reach me: karishmasharma2424@gmail.com***</br></br>
 - 😄 ***Pronouns: she/Her***</br></br>
-- ⚡ ***Fun Fact: ............***</br></br>
+- ⚡ ***Fun Fact: I have phobophobia but love to watch horror movies***</br></br>
 
